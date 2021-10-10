@@ -1,4 +1,5 @@
 # Far aux pruneaux, rhum et lait ribot *(Far Breton with prunes, rum and buttermilk)*
+*From Saveurs magazine #278, Oct-Nov 2021 issue, pg. 31*
 
 Preparation: 10 minutes
 Cooking: 45 minutes
